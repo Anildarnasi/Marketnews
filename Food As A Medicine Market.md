@@ -1,4 +1,4 @@
-Food as Medicine Market: How Nutrition is Transforming Healthcare & Wellness
+**Food as Medicine Market: How Nutrition is Transforming Healthcare & Wellness**
 
 Food As A Medicine Market report, published by DataM Intelligence, provides in-depth insights and analysis on key market trends, growth opportunities, and emerging challenges. Committed to delivering actionable intelligence, DataM Intelligence empowers businesses to make informed decisions and stay ahead of the competition. Through a combination of qualitative and quantitative research methods, it offers comprehensive reports that help clients navigate complex market landscapes, drive strategic growth, and seize new opportunities in an ever-evolving global market.
 
